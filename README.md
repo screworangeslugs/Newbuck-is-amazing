@@ -12,18 +12,18 @@ text text text tetxtte ok newbuck yaoi yaoi newbie puck newbuck
 <details>
   <summary>dni</summary>
 
-  txt
+  basic dni . most particularly LSP fandom, South Park fandom, Kayden Smith/H&YYMagic8ball and PuckieLockie supporters dni pls
 </details>
 <details>
   <summary>friend(s)</summary>
 
-  txt
+  [rose](https://github.com/wiltingr0ses) , [cinder](https://github.com/FrutigerAeroCore)
 </details>
 <br clear="left" />
 <p align="center">
   <img src="https://i.postimg.cc/WbFJQZmV/checker-div.gif" alt="div" width="800">
 </p>
-<p align="center"> link ＞︿＜ link </p>
+<p align="center"> [fluffle.cc](https://fluffle.cc/screworangeslugs) ＞︿＜ [atabook](https://screworangeslugs.atabook.org/) </p>
 <p align="center">
   <img src="https://cdn.discordapp.com/emojis/1480123651436318751.gif" alt="puckexpand" width="50"><img src="https://cdn.discordapp.com/emojis/1540178036517896272.gif" alt="newbieloop" width="50">
 </p>
