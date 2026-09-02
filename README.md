@@ -1,2 +1,1 @@
-[![goodbie-badpuck.png](https://i.postimg.cc/c467NJRq/goodbie-badpuck.png)](https://postimg.cc/1fhVGs7M)
-<p align="center">[ata](https://blamepuckthepurplemouse.atabook.org/)    [rentry](https://rentry.co/e-cards)    [straw](https://newbuckyaoi.straw.page/)</p>
+i use this for wip repos ok hm.  ![puckexpand emoji creds: piddles.net discord server](https://cdn.discordapp.com/emojis/1480123651436318751.gif)![newbieloop](https://cdn.discordapp.com/emojis/1540178036517896272.gif)
