@@ -8,14 +8,17 @@ i use this for wip repos ok hm.  ![puckexpand emoji creds: piddles.net discord s
 </p>
 <img align="left" src="https://i.postimg.cc/g0ZppYSp/Untitled17-20260902093354.png" alt="newbuck" width="500">
 
-text text text tetxtte ok newbuck yaoi yaoi newbie puck newbuck
+<p align="left">$\color{#c54a1a}{\text{Nines / Newbie / Jiu / 99}}$</p>
+<p align="left">$\color{#8a72ac}{\text{alterhuman newbie fictionkin my/cn he / slime prns only.}}$</p>
+<p align="left">$\color{#c54a1a}{\text{diagnosed NPD iwcaution if not oomf}}$</p>
+<p align="left">$\color{#8a72ac}{\text{i'm a theistic satanist}}$</p>
 <details>
-  <summary>dni</summary>
+  <summary>                 dni ，ㅤ ׅ 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ</summary>
 
   basic dni . most particularly LSP fandom, South Park fandom, Kayden Smith/H&YYMagic8ball and PuckieLockie supporters dni pls
 </details>
 <details>
-  <summary>friend(s)</summary>
+  <summary>ㅤ             ❗       ．    friends</summary>
 
   [rose](https://github.com/wiltingr0ses) , [cinder](https://github.com/FrutigerAeroCore)
 </details>
@@ -23,7 +26,9 @@ text text text tetxtte ok newbuck yaoi yaoi newbie puck newbuck
 <p align="center">
   <img src="https://i.postimg.cc/WbFJQZmV/checker-div.gif" alt="div" width="800">
 </p>
-<p align="center"> [fluffle.cc](https://fluffle.cc/screworangeslugs) ＞︿＜ [atabook](https://screworangeslugs.atabook.org/) </p>
+<p align="center">
+  <a href="https://screworangeslugs.atabook.org/">atabook</a> $\color{#c54a1a}\text{＞︿＜}$ <a href="https://fluffle.cc/screworangeslugs">fluffle.cc</a> 
+</p>
 <p align="center">
   <img src="https://cdn.discordapp.com/emojis/1480123651436318751.gif" alt="puckexpand" width="50"><img src="https://cdn.discordapp.com/emojis/1540178036517896272.gif" alt="newbieloop" width="50">
 </p>
